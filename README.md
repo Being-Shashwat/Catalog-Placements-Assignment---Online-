@@ -1,1 +1,0 @@
-# Catalog-Placements-Assignment---Online-
